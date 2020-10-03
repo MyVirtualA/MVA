@@ -1,2 +1,17 @@
 # MVA
 HOW DID I START MY VIRTUAL FREELANCING JOURNEY?
+
+In these modern times, finding information became easier. Sometimes with just a click of your mouse, everything is presented to you in an instant.
+
+When I started this journey, I was first introduced to the word “FREELANCING”.
+
+What does FREELANCING mean?
+In my not-so-modern mind, I associated the word “FREELANCING” with anyone who does tasks or jobs without a “company” or any affiliated group. As simple as that. Literally, free lancing. However, in the “Virtual World”, it is more in-depth. I was told that virtual freelancing is not merely a job, but a business. How funny when I thought about it because, for me, BUSINESS is something that you do TANGIBLY. You should have an office, staff or personnel, business licenses, etc. I kept telling myself that this is a marketing strategy to attract “future” freelancers to enroll in this widespread online classes that became predominantly present during this time of the pandemic. I am not against their businesses but definitely, this is still not okay with me. So for a short time, I paused working on this. But one day, I was suddenly confronted with two realizations of my life: 1. I wanted to live comfortably, financial freedom to be exact; and, 2. I want to fulfill my long time dream of becoming a Stay-At-Home-Mom, the traditional mother, and wife duty. So there goes my 2nd try to venture on this journey.
+
+My “AGAIN”
+They said, “It’s sweeter the second time around.”. It was indeed. My eagerness to explore the vast world of VIRTUAL FREELANCING made me realize that this has been going for so long, long time ago that I couldn’t even recall. At first, I was brazen enough to do this because all I ever think was, this is my daily job. But then, I was wrong. I was faced with many unfamiliar words, applications, skills, and ideals. I felt I was transported to another dimension. And this made me realize that the world is growing so fast that if we won’t take a look, we will be left behind.
+Last June 2020, I started scouting for a reliable online training for my freelancing journey. It is not easy, because they say that they are all good and they will land you a client/ job at the end of your training. I was hesitant and confused. But I remembered my BITCOIN journey 2 years ago. I also didn’t know what it is, but I managed to profit from that just by reading, learning, and understanding, self-study as they called it. That gave me the “push” for my freelancing journey. I invested in myself by enrolling in an online freelancing class. This very article is my assignment for week 12.
+
+Where I am now?
+It’s been 4 months since I started. I am still on the “getting to know” stage and I am far from landing a job too. But guess what? I already applied to various online job platforms. I had my Upwork, OnlineJobs.ph, Fiverr, etc. approved and running. I am trying my best luck and courage to apply what I have learned so far with my online training. They say you can do it just by studying on your own or have the mindset that you can do it. But for me, it comes with both. For me, I felt confident in my applications. It made me realize that if somebody can do it, so do I. It may not be that easy, but still, I am taking one step at a time.
+Just like anyone who just landed a job, there is always the starting point. Best to do it now than wait till you’re ready. Act now and you will know.
